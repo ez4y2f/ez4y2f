@@ -3,7 +3,7 @@ Hi :). I'm *ez4y2f* or *y2f*, a middle school student. \
 Work on things interesting. Currently learning ML/DL. \
 Both Software&Hardware. \
 Visit My Blog?:P->[https://y2f.xyz](https://y2f.xyz) \
-Find me on [Bilibili](https://space.bilibili.com/675194063/) \
+Find me on [Bilibili](https://space.bilibili.com/675194063/)
 
 
 <!---
